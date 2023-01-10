@@ -5,7 +5,7 @@
 
 - 🌱💖I’m currently learning **Java,Swift,Pyhton,Digital Art 💻**
 
-- 📫💖How to reach me **aycalnisik@gmail.com**
+- 📫💖How to reach me **aycalnisik@gmail.com📬 **
 
 - ⚡💖 Fun fact **I love to do drawing at digital and paper 🎨**
 
